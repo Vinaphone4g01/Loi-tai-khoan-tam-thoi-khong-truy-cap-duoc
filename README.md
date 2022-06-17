@@ -1,2 +1,4 @@
 # Loi-tai-khoan-tam-thoi-khong-truy-cap-duoc
 Lỗi tài khoản không truy cập được làm không ít người dùng khó chịu
+<p style="text-align: justify;"><a href="https://3gmobifones.com/loi-tai-khoan-tam-thoi-khong-truy-cap-duoc"><strong>Lỗi tài khoản tạm thời không truy cập được</strong></a> khiến người dùng khó chịu và không hiểu nguyên nhân do đâu. Gặp phải tình trạng này không ít người dùng lo lắng và muốn biết cách xử lý càng nhanh càng tốt. Trong quá trình dùng sim chắc chắn bạn sẽ gặp nhiều tình trạng không mong muốn. Tuy nhiên biết cách xử lý thì sẽ trở nên dễ dàng hơn bao giờ hết.</p>
+<p style="text-align: justify;">Với nội dung bài viết dưới đây <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> sẽ hướng dẫn bạn cách khắc phục tình trạng đề cập trên. Đây là trường hợp không mong muốn nếu bạn muốn sử dụng sim bình thường và lâu dài thì nên áp dụng.</p>
